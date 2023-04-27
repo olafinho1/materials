@@ -13,5 +13,7 @@ https://imgur.com/a/TmNxV1J
 ![wakelight1](https://i.imgur.com/LWtP43Y.png)
 ![wakelight2](https://i.imgur.com/NtLKlY6.png)
 
+![wakelight3](https://i.imgur.com/rJACtH9.png)
+
 ### More photos:
 https://imgur.com/a/3DCcJL2
